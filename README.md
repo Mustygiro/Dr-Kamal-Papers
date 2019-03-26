@@ -1,2 +1,2 @@
 # Dr-Kamal-Papers
-You can downloads your papers here
+You can download your papers here
